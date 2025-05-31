@@ -1,3 +1,3 @@
-Tequilaw Developmemt Hayatınıza Güç Katar.
+Tequilaw Development Hayatınıza Güç Katar.
 
 Script Paylaşımları İçin Beklemede Kalın!
